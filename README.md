@@ -1,6 +1,3 @@
----
-layout: default
----
 
 # 存活的QQ群
 
