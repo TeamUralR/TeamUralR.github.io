@@ -3,7 +3,7 @@
 
 点击加入Discord群：[DC山脉](https://discord.gg/c8aZ2vzX).
 
-点击加入QQ群：[QQ山脉](https://qun.qq.com/universal-share/share?ac=1&authKey=J1VhYoehLAeavNdhZhP0XU7Dn3bTi8rYc00mhilXxyVrxAVrgsDLPtBFWIyvMX/H&busi_data=eyJncm91cENvZGUiOiI4Mzc2ODgzMjAiLCJ0b2tlbiI6ImNsSVczZmU1SFYveHg0OU1sbEtsU0dKT3NoeU1yLzhRWWhvWk5NSmdnWlVLMjEzdlBmUTM5TGpmbHJUWTZOUnciLCJ1aW4iOiIyMDQ0MTU4NDI4In0=&data=YmGQ23ZjeC2dIDP-nrWxaYQX69YVnUnfJ253mAY7HlbJ6nlVilWqFBCqx_d3Vo8ofb5kdBd0M5g0oGoRG_4b3A&svctype=4&tempid=h5_group_info).
+点击加入QQ群：[QQ山脉](https://qun.qq.com/universal-share/share?ac=1&authKey=Y2pdnbvG%2FX%2FgDcFDz%2Boj5L10O6%2BL157l%2F%2BCYWur0gYpgAX%2B%2FoViyWPdAnXGRQq7w&busi_data=eyJncm91cENvZGUiOiI3NDk0NjI5NzEiLCJ0b2tlbiI6IkxkakNLaWQ5M1U0bU1qbjRxenBYS2dYVS8vU0VCczdNTlhTNnlCaE11NUZBU1pTbytUVXRhdmNrcWZjZmdjcVUiLCJ1aW4iOiIyMDQ0MTU4NDI4In0%3D&data=0z40EfYrrIuL9-VvgH7G3Geslpy0RNZ7_g3LMoPY-xoE7KuPCds8BIYoxCDFGXL4P24TPcxqzCGWJ6AWFl60DQ&svctype=4&tempid=h5_group_info).
 
 ## 备用QQ群
 
